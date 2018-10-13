@@ -21,4 +21,4 @@ Roast for five minutes, then lower the heat to 350°.
 
 Cook until internal tempeture reaches 135-140°. 
 
-Let it rest for 10 minutes.
+Let it rest for 10 minutes and pull out of the net.
