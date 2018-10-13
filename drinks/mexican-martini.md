@@ -1,5 +1,5 @@
 # Mexican Martini
-#### 319 calories per serving
+### 319 calories per serving
 * 1oz lime juice
 * 1oz orange juice
 * 2oz silver tequila
